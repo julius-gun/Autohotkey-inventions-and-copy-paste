@@ -1,0 +1,1 @@
+# Autohotkey-inventions-and-copy-paste
